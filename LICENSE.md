@@ -1,4 +1,4 @@
-# 
+# Turbo ImageSense setup. Download and install with step-by-step-guide and multi-language — fast, secure, and easy to use.
 
 
 
